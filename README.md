@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Danielle
-- 👀 I’m interested in any and all code
+- 👀 I’m interested in broadening my UI skills.
 - 🌱 I’m currently learning to do projects on my own
 - 📫 How to reach me - Follow me on LinkedIn! https://www.linkedin.com/in/danielle-fernandez-a9b5a518b/
 
