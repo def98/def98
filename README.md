@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Danielle
-- 👀 I’m interested in all the new AI and ML.
 - 🌱 I’m currently expanding my skills to catch up with technologies across platforms
 - 📫 How to reach me - Follow me on LinkedIn! https://www.linkedin.com/in/danielle-fernandez-a9b5a518b/
 
